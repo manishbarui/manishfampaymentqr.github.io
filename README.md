@@ -1,1 +1,1 @@
-# manishfampaymentqr.github.io
+# manishfampaymentqr.com
